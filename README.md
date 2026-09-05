@@ -11,3 +11,6 @@
 
 <img width="736" height="736" alt="7e2e1071b834d5f4576be9af0bac730a" src="https://github.com/user-attachments/assets/4abde3d1-62dd-4979-a430-b7bb95056b9d" />
      >   ʜʏ ᴅɪᴇ    <    ɢᴇsᴋɪᴇᴅᴇɴɪs ᴠᴀɴ ᴅɪᴇ ᴇᴇʀsᴛᴇ  ᴠᴀɴ ᴅɪᴇ ᴇᴇʀsᴛᴇ ᴋᴇᴇʀ ɪɴ    # ᴊᴀᴀʀ ᴠᴀɴ ᴅɪᴇ ᴇᴇʀsᴛᴇ leraar 
+
+ 1 . ι ναη ∂ιє Єєя вαιє ναη ∂ιє єєяѕтє
+  @  ʜʏ ᴅɪᴇ ᴇᴇʀsᴛᴇ ᴋᴇᴇʀ
